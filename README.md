@@ -1,5 +1,6 @@
-### Hi there 👋
-
+### Hi there I'm Sapdaddy 👋
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: i play minecraft
 <!--
 **sapdaddyy/sapdaddyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
